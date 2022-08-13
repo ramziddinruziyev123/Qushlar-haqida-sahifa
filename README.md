@@ -1,0 +1,1 @@
+# Qushlar-haqida-sahifa
